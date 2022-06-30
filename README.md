@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I’m currently studying a master degree in economics in university of San Andres  ⚡
 
 <!--
 **TomasPeruchin/TomasPeruchin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
